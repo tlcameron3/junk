@@ -1,8 +1,5 @@
 # junk
-practice repository
-this is garbage hahahahahahaha
-ignore this whole file lol
-this is
+
 nothing
 just
 do not read any further
