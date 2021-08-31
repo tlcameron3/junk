@@ -1,10 +1,6 @@
 # junk
 
-nothing
-just
-do not read any further
-i am
-not kidding
+g
 get out of here
 bro
 why
