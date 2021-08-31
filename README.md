@@ -13,13 +13,13 @@ bro
 why
 are you
 still here
-oml gtf out 
+oml gtf out
 ples
 this is nothing file
 nonononononono
 ugh
 im really
-upset 
+upset
 at you
 right now
-ugh
+ugh hehe
